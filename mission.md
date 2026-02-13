@@ -1,1 +1,1 @@
-Group Member: Nicholas Katapazi
+Group Member: Nicholas Katapa
